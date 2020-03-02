@@ -5,3 +5,9 @@ fim
 
 
 Lucas alterou aqui
+
+
+jhonatan adicionou 
+
+
+Nossa forma de receitas é vender esse espaço de divulgação dos produtos de uma determinada loja para que os fornecedore possam cadastrar seus protudos nessa plataforma, sendo que acima de 10 produtos cadastrados é adicionado uma taxa 
